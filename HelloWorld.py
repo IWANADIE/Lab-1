@@ -1,1 +1,4 @@
-print("ET0735 - DevOps for AIoT")
+ur mum lol!
+eat cock owen
+u cock sucker
+1v1 me in mid lane you otp
